@@ -1,5 +1,5 @@
 # cricutsetuppc
-
+<h1><Big><a href="https://cricutsetjoy.com">Get Started</a></Big></h1>
 <h1>Cricut.com/Setup | Cricut.com Setup Windows, Android & iOS</h1>
 
 <h2>What is Cricut.com/setup?</h2>
